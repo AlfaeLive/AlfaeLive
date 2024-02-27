@@ -1,4 +1,4 @@
 # Hello! I am Alfae!
-My pronouns are She/they
+I use Any Pronouns!!
 
 Idk what I'm doing lol
